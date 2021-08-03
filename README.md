@@ -1,0 +1,2 @@
+# asucok
+Anak haram
